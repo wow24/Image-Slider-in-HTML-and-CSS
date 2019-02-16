@@ -13,7 +13,9 @@ WOW24! cover many topics such as Web Designing, Web Development, Programming, Da
 ＬＩＫＥ | ＣＯＭＭＥＮＴ | ＳＨＡＲＥ | ＳＵＢＳＣＲＩＢＥ & Join Our Other Social Media
 
 Web : https://goo.gl/f3cR4y
+
 about me : https://goo.gl/C6aqiW
+
 GitHub : https://goo.gl/AJpRpF
 
 YouTube - https://goo.gl/L1GYgZ
